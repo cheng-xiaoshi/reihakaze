@@ -1,5 +1,7 @@
 ***rei***/reiji or **akito** / mixed seasian chinese demiromantic ace **lesbian** + minor 
 
+*he*/**vamp**/xe pronouns entj 8w7
+
 **dni** basic dni crit, u make fun of trauma that you've never experienced b4, u _romantic cc or lovemail me_, u actively talk ab real-life g%%0r3 & enjoy it, dr fans/enjoyers, ybc enjoyers/fans, irls = hardcore kins or high kins, you **BELIEVE** yae's a lesbian js because yae sakura is a canon lesbian (no, yae miko isnt a canon lesbian suck it up, idc if you think im a lesbiphobe im literally lesbian myself asshole)
 
 **thin ice** "dbls dni they dont exist", gi fans, most enstarries, genshin irls (you may interact if you're in this list,, but just dont try to start shit w/ me)
