@@ -11,4 +11,4 @@
 **extra note** hi i give free cuddles pls come up to me even tho im in a satire skin.. I PROMISE I KNOW HOW TO MAKE SKINS. i js dont use them often, im currently hyperfixated on pjsk n enstars ,, i do not wish to be associated w/ the toxic side of the fandoms. 
 consider me some kind of enstarrie idc but most enstarries dni unless you're not "toxic" skull emoji
 
-read [patreon](https://patreon.com/shinonomeakito) & [rentry](https://rentry.co/sakkuma) for more tq
+read [patreon](https://patreon.com/shinonomeakito) & [rentry](https://rentry.co/shiinonome) for more tq
